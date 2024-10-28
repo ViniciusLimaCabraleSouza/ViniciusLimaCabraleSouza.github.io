@@ -1,9 +1,3 @@
-Template:
-
-AJ
-aj@lkn.io | @ajlkn
-
-
 Créditos:
 
 	Imagenss:
